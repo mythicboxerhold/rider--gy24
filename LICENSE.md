@@ -1,4 +1,4 @@
-# 
+# Get the ultimate JetBrains Rider for PC | JetBrains Rider for Windows extension with ultimate JetBrains Rider for PC | JetBrains Rider for Windows Extension | plugin-system +
 
 
 
